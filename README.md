@@ -61,7 +61,6 @@ Interested in: applied AI, Linux systems administration, backend.
 
 ## Contact
 
-- **Email:** nurstlmsss@gmail.com
 - **LinkedIn:** [nur-satılmış](https://www.linkedin.com/in/nur-sat%C4%B1lm%C4%B1%C5%9F-972a80298)
 
 Happy to talk about internships, projects, or anything above.
