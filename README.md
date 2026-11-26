@@ -4,7 +4,7 @@ Computer Engineering student. I work on Android apps, machine learning and Linux
 servers — usually not as three separate things.
 
 **Open to:** a **long-term internship** for the spring semester of the 2026–2027
-academic year (one full term, 2–3 days a week). Remote or around Istanbul.
+academic year (one full term, 2–3 days a week). 
 
 ---
 
